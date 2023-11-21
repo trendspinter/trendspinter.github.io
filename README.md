@@ -1,0 +1,1 @@
+# trendspinter.github.io
